@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MrW00d
+- 👋 Hi, I’m Noy
 - 👀 I’m interested in anything computer
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on ...
