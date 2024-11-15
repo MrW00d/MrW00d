@@ -2,7 +2,7 @@
 - 👀 I’m interested in anything computer
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me thatguyisnotnearly(discord)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I play minecraft:)
 
